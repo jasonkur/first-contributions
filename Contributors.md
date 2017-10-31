@@ -1228,4 +1228,4 @@
 - [Anubhav Patel](https://github.com/anubhavp28)
 - [Shruti Kapoor](https://github.com/shrutikapoor08)
 - [Ashish Vishwakarma](https://github.com/AshV)
-- [Jason Kurniawan](https://github.com/jasonww11)
+- [Jason Kurniawan :)](https://github.com/jasonww11)
